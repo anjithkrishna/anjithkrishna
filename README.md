@@ -5,6 +5,7 @@
 - 📫 Reach me at
 
 Linkedin: https://www.linkedin.com/in/anjith-krishna-4b791a1aa/
+Artstation: https://www.artstation.com/anjithkrix08
 
 <!---
 anjithkrishna/anjithkrishna is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
